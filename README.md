@@ -1,4 +1,4 @@
-### 🧑🏼‍💻
+### 📫 How to reach me: 'nico.gronert@icloud.com'
 <!--
 **NicoGronert/NicoGronert** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
